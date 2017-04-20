@@ -10,3 +10,4 @@ Windows - any plastic wich you like, i prefer translucent Acrylic 4 mm  . 4 part
 Rear side ( with big Rectangular hole ) - use inner side for rear cover, It is necessary to glue big part with 20x465 & 20x365. 13 mm holes for cabeles.
 
 Maybe you must use your hands to make it better ))))
+IF YOU WANT, YOU CAN DONATE ME FOR MY WORK http://funding.to/2293
